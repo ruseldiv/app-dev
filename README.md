@@ -6,7 +6,7 @@ The **Marvel Cinimatic Universe** is a collection of superhero films produced by
 
 ### Why I Love It : heart
 - Amazing Interconnected Stories
-- Iconic characters like **Iron Man**, ** ?Captain America**, and **Spider-Man**
+- Iconic characters like **Iron Man**, **Captain America**, and **Spider-Man**
 - Epic action scenes and ecnotional moments 
 
 > "I can do this all day." - Captain Amera
